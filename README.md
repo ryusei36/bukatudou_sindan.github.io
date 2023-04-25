@@ -1,1 +1,1 @@
-# bukatudou_sindan.github.io
+# bukatudou_sindan
